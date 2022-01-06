@@ -1,0 +1,2 @@
+# Social-Problem-Report
+Social problems are usually seen in the context of social conditions that disturb or harm society. For example, antisocial behavior, poverty, intoxication, prostitution, socioeconomic deprivation, political corruption, unemployment, etc. The sociology of social problems defines social problems differently and follows a different analytical approach. This approach is sometimes called constructionist. The constructionist is defined as a social problem in relation to the process rather than a kind of situation.
